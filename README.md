@@ -2,7 +2,7 @@
 
 meu nome e Luis Fernando
 
-- Estou estudando na escola ABA utilizando o alura
+- sou atleta do CASC.FC
 - se quiser me conhecer melhor me siga no instagran
 
   ### @ramos.lfpl
