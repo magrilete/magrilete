@@ -7,4 +7,4 @@ meu nome e Luis Fernando
 
   ### @ramos.lfpl
   
- ![](https://media.tenor.com/z8cNjsiVqpkAAAAM/anime-gojo.gif)
+ ![](https://media.tenor.com/MXmp8XFC_gkAAAAM/itoshi-rin-blue-lock.gif)
