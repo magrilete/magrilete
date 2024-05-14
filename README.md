@@ -2,7 +2,7 @@
 
 meu nome e Luis Fernando
 
-- team thegurisSC
+-  thegurisSC
 - se quiser me conhecer melhor me siga no instagran
 
   ### @ramos.lfpl
